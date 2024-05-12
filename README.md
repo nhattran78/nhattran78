@@ -1,6 +1,5 @@
 ### Hi there 👋
-- 🔭 I’m currently working ...
-- 🌱 I’m currently learning on FPT University
+- 🌱 Bachelor of Information Technology at FPT University with major in Information Assurance
 - 📫 How to reach me: 
 
 ─ ─ ─ ─ ─ ⋆ ┊₊˚๑ Facebook✧ https://www.facebook.com/Minh.Nhat778/
